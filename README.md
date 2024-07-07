@@ -2,7 +2,7 @@
 - 👀 I’m interested in science and art
 - 🌱 I’m currently learning how to use this site to make a platform for my projects
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me: @rioyuprojects on discord, @rioyustuff@gmail.com
+- 📫 How to reach me: @rioyuprojects on discord, or @rioyustuff@gmail.com
 - 😄 Pronouns: they/it
 - ⚡ Fun fact: I like bugs
 
